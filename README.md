@@ -15,7 +15,7 @@
 
 - 📝 I have **good concentration.**
 
-- I am a **computer engineering major** at Yeungnam University.
+- 🏫 I am a **computer engineering major** at Yeungnam University.
 
 
 
