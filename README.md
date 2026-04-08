@@ -11,6 +11,12 @@
 
 - 😀 I enjoy a **New Challenge.**
 
+- 🇰🇷 I am interested in **studying foreign languages.**
+
+- 📝 I have **good concentration.**
+
+- I am a **computer engineering major** at Yeungnam University.
+
 
 
 <h3 align="left">Connect with me:</h3>
